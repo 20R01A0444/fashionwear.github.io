@@ -1,1 +1,0 @@
-# fashionwear.github.io
